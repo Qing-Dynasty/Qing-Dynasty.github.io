@@ -1,2 +1,2 @@
-# Qing-Dynasty.github.io
+# Qing-Dynasty.github.com
 Discord Server
